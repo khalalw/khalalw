@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @khalalw
-- 👀 I’m interested in books and gaming.
-- 📫 How to reach me: contact@khalalw.com
+- 👀 I’m interested in languange learning (spanish) and books.
+- 📫 How to reach me: khalalw@outlook.com
